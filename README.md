@@ -8,4 +8,4 @@ One Love <3
 
 2b26884cd0f325104ad25462fb32640a2bd69ab7fbdbfd3055674ba8003af8a3a5d67e6bbe2ca45ddd792ce313ba0536edfcb369bade63c6db11fa8e39e771db
 
-[balanced.ovpn](https://github.com/RnbWd/corakata/raw/master/balanced.ovpn)
+[balanced.ovpn.zip](https://github.com/RnbWd/corakata/raw/master/balanced.ovpn.zip)
