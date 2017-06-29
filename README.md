@@ -5,3 +5,5 @@ Cora Kata is a word passed down to me from a friend from a friend from a friend.
 As we continue to explore the depths of existence, we will need to continually update and expand upon our vocabulary. Take this task upon yourselves, and share your cora kata with the world.
 
 One Love <3
+
+6221f2d431f94499b1e4a701d3522cca293ceb9df4e67d981e6bb70e192838378d0bcd64b03c1d8437ed7def6713e5f25b457cbd0dc8980653c2ad7274d2daa2
