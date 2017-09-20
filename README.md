@@ -4,6 +4,7 @@ Cora Kata is a word passed down to me from a friend from a friend from a friend.
 
 As we continue to explore the depths of existence, we will need to continually update and expand upon our vocabulary. Take this task upon yourselves, and share your cora kata with the world.
 
-One Love <3
+Here is a list of demands I am requesting - practices that should end immediately:
 
-b96e4b11fb7c3b49504c5fe63a42f2913cc2f3692ccdea730b92ebb5c113ef102fdbcd5e901974e80c66ab9e0ca4cacf0d02da5b67a410ac6cbd002dd7b4d0e9
+1) Tagging astral forms
+2) Manipulating Kundalini
