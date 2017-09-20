@@ -7,4 +7,5 @@ As we continue to explore the depths of existence, we will need to continually u
 Here is a list of demands I am requesting - practices that should end immediately:
 
 1) Tagging astral forms
+
 2) Manipulating Kundalini
